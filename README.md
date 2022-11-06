@@ -1,0 +1,1 @@
+# c-_galeri_otomasyon-
